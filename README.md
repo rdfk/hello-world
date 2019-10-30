@@ -1,2 +1,3 @@
 # hello-world
 Who watches the watchers?
+Need something to write here, has anyone read Michio Kaku's "The Future of Humanity" recently? Our future sounds very exciting! Hopefully we can make technology that assists us instead of replaces us. Allowing humans to do what I believe they are best at which is create based on inspiration from our environment, and explore our senses. Humanity has always looked for a creator. Have we ever looked in the mirror? We sculpt, we reproduce, code, build machines, and robots, etc. We are creators... not nessarily responsible for creating our origin but everything after that we have created. Our destiny is our own. -Rdfk
